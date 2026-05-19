@@ -1,4 +1,4 @@
-# 
+# Meilleur DaVinci Resolve pour PC extensions est le meilleur DaVinci Resolve pour PC extensions avec étalonnage des couleurs et stabilisation vidéo. Sécurisé, fiable et optimisé
 
 
 
